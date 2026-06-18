@@ -1,0 +1,127 @@
+https://www.blog.chuangqisifu.com/Article/details/21453.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/22996.sHtML  
+https://5g.chuangqisifu.cn/Article/details/34577.sHtML  
+https://5g.chuangqisifu.com/Article/details/19369.sHtML  
+《将进酒》原文翻译及赏析_作者李白
+君不见，黄河之水天上来，奔流到海不复回。
+ 君不见，高堂明镜悲白发，朝如青丝暮成雪。
+ 人生得意须尽欢，莫使金樽空对月。
+ 天生我材必有用，千金散尽还复来。
+ 烹羊宰牛且为乐，会须一饮三百杯。
+ 岑夫子，丹丘生，将进酒，杯莫停。
+ 与君歌一曲，请君为我倾耳听。(倾耳听 一作：侧耳听)
+ 钟鼓馔玉不足贵，但愿长醉不复醒。(不足贵 一作：何足贵；不复醒 一作：不愿醒不用醒)
+ 古来圣贤皆寂寞，惟有饮者留其名。(古来 一作：自古；惟 通：唯)
+ 陈王昔时宴平乐，斗酒十千恣欢谑。
+ 主人何为言少钱，径须沽取对君酌。
+ 五花马，千金裘，呼儿将出换美酒，与尔同销万古愁。   
+https://www.blog.chuangqisifu.com/Article/details/49073.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/05063.sHtML  
+https://5g.chuangqisifu.cn/Article/details/49399.sHtML  
+https://5g.chuangqisifu.com/Article/details/63106.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/07577.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/71230.sHtML  
+https://5g.chuangqisifu.cn/Article/details/89518.sHtML  
+https://5g.chuangqisifu.com/Article/details/23474.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/45073.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/33112.sHtML  
+https://5g.chuangqisifu.cn/Article/details/99788.sHtML  
+https://5g.chuangqisifu.com/Article/details/86771.sHtML  
+《将进酒》原文翻译及赏析_作者李白
+君不见，黄河之水天上来，奔流到海不复回。
+ 君不见，高堂明镜悲白发，朝如青丝暮成雪。
+ 人生得意须尽欢，莫使金樽空对月。
+ 天生我材必有用，千金散尽还复来。
+ 烹羊宰牛且为乐，会须一饮三百杯。
+ 岑夫子，丹丘生，将进酒，杯莫停。
+ 与君歌一曲，请君为我倾耳听。(倾耳听 一作：侧耳听)
+ 钟鼓馔玉不足贵，但愿长醉不复醒。(不足贵 一作：何足贵；不复醒 一作：不愿醒不用醒)
+ 古来圣贤皆寂寞，惟有饮者留其名。(古来 一作：自古；惟 通：唯)
+ 陈王昔时宴平乐，斗酒十千恣欢谑。
+ 主人何为言少钱，径须沽取对君酌。
+ 五花马，千金裘，呼儿将出换美酒，与尔同销万古愁。   
+https://www.blog.chuangqisifu.com/Article/details/96044.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/05958.sHtML  
+https://5g.chuangqisifu.cn/Article/details/34881.sHtML  
+https://5g.chuangqisifu.com/Article/details/46960.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/85037.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/77543.sHtML  
+https://5g.chuangqisifu.cn/Article/details/86592.sHtML  
+https://5g.chuangqisifu.com/Article/details/45222.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/31683.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/96818.sHtML  
+https://5g.chuangqisifu.cn/Article/details/01827.sHtML  
+https://5g.chuangqisifu.com/Article/details/74526.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/20456.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/15566.sHtML  
+https://5g.chuangqisifu.cn/Article/details/15038.sHtML  
+https://5g.chuangqisifu.com/Article/details/44862.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/37526.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/61492.sHtML  
+https://5g.chuangqisifu.cn/Article/details/89312.sHtML  
+https://5g.chuangqisifu.com/Article/details/96095.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/63344.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/19081.sHtML  
+https://5g.chuangqisifu.cn/Article/details/53795.sHtML  
+https://5g.chuangqisifu.com/Article/details/01298.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/97715.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/06122.sHtML  
+https://5g.chuangqisifu.cn/Article/details/46127.sHtML  
+https://5g.chuangqisifu.com/Article/details/19706.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/90158.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/33897.sHtML  
+https://5g.chuangqisifu.cn/Article/details/49352.sHtML  
+https://5g.chuangqisifu.com/Article/details/60899.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/49358.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/69603.sHtML  
+https://5g.chuangqisifu.cn/Article/details/75615.sHtML  
+https://5g.chuangqisifu.com/Article/details/53158.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/27281.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/56728.sHtML  
+https://5g.chuangqisifu.cn/Article/details/41862.sHtML  
+https://5g.chuangqisifu.com/Article/details/01503.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/60763.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/84955.sHtML  
+《将进酒》原文翻译及赏析_作者李白
+君不见，黄河之水天上来，奔流到海不复回。
+ 君不见，高堂明镜悲白发，朝如青丝暮成雪。
+ 人生得意须尽欢，莫使金樽空对月。
+ 天生我材必有用，千金散尽还复来。
+ 烹羊宰牛且为乐，会须一饮三百杯。
+ 岑夫子，丹丘生，将进酒，杯莫停。
+ 与君歌一曲，请君为我倾耳听。(倾耳听 一作：侧耳听)
+ 钟鼓馔玉不足贵，但愿长醉不复醒。(不足贵 一作：何足贵；不复醒 一作：不愿醒不用醒)
+ 古来圣贤皆寂寞，惟有饮者留其名。(古来 一作：自古；惟 通：唯)
+ 陈王昔时宴平乐，斗酒十千恣欢谑。
+ 主人何为言少钱，径须沽取对君酌。
+ 五花马，千金裘，呼儿将出换美酒，与尔同销万古愁。   
+https://5g.chuangqisifu.cn/Article/details/60704.sHtML  
+https://5g.chuangqisifu.com/Article/details/75644.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/60508.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/58544.sHtML  
+https://5g.chuangqisifu.cn/Article/details/38233.sHtML  
+https://5g.chuangqisifu.com/Article/details/15674.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/62458.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/61685.sHtML  
+https://5g.chuangqisifu.cn/Article/details/38341.sHtML  
+https://5g.chuangqisifu.com/Article/details/09777.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/01532.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/48361.sHtML  
+https://5g.chuangqisifu.cn/Article/details/38296.sHtML  
+https://5g.chuangqisifu.com/Article/details/20596.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/82374.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/27882.sHtML  
+https://5g.chuangqisifu.cn/Article/details/92400.sHtML  
+https://5g.chuangqisifu.com/Article/details/53831.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/61941.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/99728.sHtML  
+https://5g.chuangqisifu.cn/Article/details/05310.sHtML  
+https://5g.chuangqisifu.com/Article/details/24163.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/15319.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/94563.sHtML  
+https://5g.chuangqisifu.cn/Article/details/79395.sHtML  
+https://5g.chuangqisifu.com/Article/details/64566.sHtML  
+https://www.blog.chuangqisifu.com/Article/details/69089.sHtML  
+https://www.blog.chuangqisifu.cn/Article/details/15041.sHtML  
+https://5g.chuangqisifu.cn/Article/details/18937.sHtML  
+https://5g.chuangqisifu.com/Article/details/20482.sHtML  
